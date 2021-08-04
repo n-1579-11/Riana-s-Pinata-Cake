@@ -1,0 +1,3 @@
+In these past few months, we saw a lot of trends from dalgona coffee, to people sharing their tweaked versions of banana bread and now heart-shaped cakes with a hammer. These 3-D looking cakes are called Pinata cakes and have taken the internet by a storm for a good reason. They’re incredibly fun to make and can be filled with anything you want- making for a great surprise.
+
+I’ve been seeing the pinata cake everywhere and I’m very excited to be sharing my version today!
